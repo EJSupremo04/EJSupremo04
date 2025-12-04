@@ -8,6 +8,6 @@
   
 - 📫 How to reach me: **ejsupremo2004@gmail.com**
   
-- ⚡ Fun fact: **I do graphic designing**
+- ⚡ Fun fact: **I do graphic designing.**
 
   
